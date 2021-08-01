@@ -7,7 +7,7 @@
 
 ⏺I Love To Play Games More And More.
 
-⏺See About Second Owner [N2G_IconiC](https://n2giconic.github.io/N2G_IconiC/)
+⏺See About Second Owner [N2G_IconiC](https://n2giconic.github.io/N2G_IconIc/)
 
 ⏺Discord ID :- I,M Killer#9999
 
