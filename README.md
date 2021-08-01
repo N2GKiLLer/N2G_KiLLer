@@ -7,8 +7,9 @@
 
 ⏺I Love To Play Games More And More.
 
-⏺See About Second Owner [N2G_IconiC]
+⏺See About Second Owner [N2G_IconiC](https://n2giconic.github.io/N2G_IconiC/)
 
+⏺Discord ID :- I,M Killer#9999
 
 #   Games
 
@@ -19,3 +20,20 @@
 2️⃣GTA 5
 
 3️⃣Battlegrounds Mobile India
+
+4️⃣Fall Guys
+
+5️⃣Watch dogs 2
+
+6️⃣More Games
+
+#   Social Media
+
+![standard](https://user-images.githubusercontent.com/87961069/127760160-efeb2b35-a247-4a4d-b25f-3e99c441e498.gif) 
+
+[YouTube](https://www.youtube.com/channel/UCFDwQne3OOEqlQPlOMDAHMg)
+
+[Discord](https://discord.gg/yX7c7AvJrV)
+
+[Instagram](https://www.instagram.com/N2Gofficial/)
+
