@@ -31,9 +31,9 @@
 
 ![standard](https://user-images.githubusercontent.com/87961069/127760160-efeb2b35-a247-4a4d-b25f-3e99c441e498.gif) 
 
-[YouTube](https://www.youtube.com/channel/UCFDwQne3OOEqlQPlOMDAHMg)
+💻[YouTube](https://www.youtube.com/channel/UCFDwQne3OOEqlQPlOMDAHMg)
 
-[Discord](https://discord.gg/yX7c7AvJrV)
+💬[Discord](https://discord.gg/yX7c7AvJrV)
 
-[Instagram](https://www.instagram.com/N2Gofficial/)
+❤[Instagram](https://www.instagram.com/N2Gofficial/)
 
